@@ -1,2 +1,2 @@
 Bioinstute
-online Tuition 
+online Tuition
